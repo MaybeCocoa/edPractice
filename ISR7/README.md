@@ -1,0 +1,2 @@
+Ссылка на изученный ресурс:
+[consultant.ru](http://www.consultant.ru/document/cons_doc_LAW_58804/e14327394d63c4f451508a6f2d1ae0c7d73e9359/)
